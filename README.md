@@ -5,7 +5,7 @@ Brawl Stars features Gems as its premium currency. Gems unlock exclusive content
 ![Image](https://github.com/user-attachments/assets/0fff07e1-3c7f-4971-9c65-23efadee7d0d)
 
 
-##Tips and Tricks **[✅🌐Click Here Free Now](https://lumon.slotkinov.com/brawl-stars-gems/)**
+## Tips and Tricks **[✅🌐Click Here Free Now](https://lumon.slotkinov.com/brawl-stars-gems/)**
 
 
 ## Official Methods to Earn Gems
